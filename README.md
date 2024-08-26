@@ -1,4 +1,4 @@
-# ia
+# I.A.
 
 Neste mês de Agosto, mergulhei em diversos assuntos sobre a Inteligência Artificial associada à mentoria de carreira e recolocação profissional: palestras, treinamentos, conversas com amigos e antigos líderes, além de testes de propostas nas quais me candidatei no último mês... Foi um vendaval de informações e discussões de prós e contras e, no fim, apenas CONCLUO que ainda há "muita água pra passar por debaixo desta ponte". 🧠
 
